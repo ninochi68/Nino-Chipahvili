@@ -1,2 +1,1 @@
-# Nino-Chipahvili
-Matematic; Technology
+# TOTdavaleba
